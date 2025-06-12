@@ -1,2 +1,2 @@
 # Here's My Updated Resume!
-[Olumide Solomon's Resume!](https://github.com/user-attachments/files/20580446/o_solomon.resume-4.pdf)
+[Olumide Solomon's Resume!](https://github.com/user-attachments/files/20715821/O.solomon.Resume.JUNE2025.pdf)
